@@ -27,7 +27,6 @@ Feel free to slide into my DMs for:
 
 ### Socials 📱
 
-- **Twitter**: [@PajamaPadhai](https://twitter.com/PajamaPadhai)
 - **Instagram**: [@PajamaPadhai](https://instagram.com/PajamaPadhai)
 
 Or drop me an email at: **pajamapadhai@gmail.com**
