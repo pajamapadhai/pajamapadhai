@@ -14,6 +14,8 @@ This repository is your go-to guide for all things **Computer Science**. From:
 
 Explore, learn, and level up your CS game while staying cozy in your favorite pajamas! 🛏️
 
+PREVIOUS YEAR QUESTION (PYQ) PAPERS FOR VIT STUDENTS!
+
 ## Get in Touch! 📬
 
 Feel free to slide into my DMs for:
